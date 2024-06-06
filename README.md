@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kauancs017
+- 👋 Hey, I’m @Kauancs017
 - 👀 I’m interested in crypto and cars
 - I'm designer
   
