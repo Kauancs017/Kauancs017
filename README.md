@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Kauancs017
 - 👀 I’m interested in crypto and cars
+- I'm designer
   
 <!---
 Kauancs017/Kauancs017 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
